@@ -1,4 +1,4 @@
-# Hi Fellow Tech Enthusiast! 👋🏻
+# Hi Fellow Tech Enthusiasts! 👋🏻
 
 I am **Reisa Aulia Sodikin**.<br>
 
